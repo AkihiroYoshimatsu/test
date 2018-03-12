@@ -1,2 +1,2 @@
 # test
-LPWA�Ɠd�q�y�[�p�[�𗘗p�����X�}�[�g�o�X��
+LPWAと電子ペーパーを利用したスマートバス停
